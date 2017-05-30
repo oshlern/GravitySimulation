@@ -1,6 +1,6 @@
 # GravitySimulation
 practice
-fuck you osher
+love you osher
 
 
 ###assa
